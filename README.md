@@ -1,0 +1,1 @@
+# photopro-photography-template
